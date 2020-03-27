@@ -7,8 +7,7 @@ You need 2 Devices - 1 GAME SCREEN, 1 GAME CONTROLLER
 GAME SCREEN: 
 You will need one device to watch the game like you would watch a gameshow on tv.  Get a laptop or tablet.  If you choose a table check that the Zoom app is installed. Use this link to join the Zoom meeting.
 
-https://us04web.zoom.us/j/9649544727
-Meeting ID: 964 954 4727
+[insert zoom link]
 
 Setup the device so it is easy to watch.  You will not touch the screen during the game, you will only watch it.  When people join confirm they can hear you and see you.  If you are using the Zoom App you may need to tap the screen or hover over the screen with your cursor to get the audio and video icons to appear.  
 
