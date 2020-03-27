@@ -18,7 +18,8 @@ Grab you smart phone and go to jackbox.tv website.  You will see a page with two
 TIPS working with Grandparents:
 Allow extra time before the game for younger people to help the grandparents fumble through the Zoom controls.  Just tell the older people that game starts earlier than everyone else, they have nothing to do anyways.  
 Be ready to call them and provide elder tech support via your mobile phone. Be prepared for terrible echoing from having Zoom audio and phone audio while you setup the grandparents. Don't worry about this noise offending the grandparents, they can't hear it anyways.
-Old people have no filter anymore so be prepared to hear some foul language.  Usually the less tech savvy one has to yell at their spouse which is almost always in another room and definitely off screen.  This is a good time to test your mute button
+Old people have no filter anymore so be prepared to hear some foul language.  Usually the less tech savvy one has to yell at their spouse which is almost always in another room and definitely off screen.  This is a good time to test your mute button.
+Put your children to task. The younger the person is that you assign to help the elderly the more adorable and entertaining it is for you to observe.
 
 TIPS for Stupid people:
 The GAME SCREEN is how you watch the game and see the other players faces.
